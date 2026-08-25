@@ -57,4 +57,4 @@ The date at the top is the date of the most recent change.
 
 ## Contact
 
-Questions about this policy, or about your data: **[your contact email]**
+Questions about this policy, or about your data: **[portofkingsgame@gmail.com]**
